@@ -1,0 +1,15 @@
+# DIGITAL MARKETING 
+
+**company**: CODTECH IT SOLUTIONS
+
+**NAME**: P.CHANDRA SAI
+
+**INTERN ID**: CTO6DN1514
+
+**DOMAIN**: DIGITAL MARKETING 
+
+**DURATION**: 6 WEEKS 
+
+**MENTOR**: NEELA SANTOSH
+
+![Screenshot 2025-07-05 122536](https://github.com/user-attachments/assets/2e72854b-a1ea-4ae6-92e0-e83f07ac4a62)
